@@ -1,0 +1,1 @@
+This repository contains the most current copy of my resume. Updated along with the online google version at https://docs.google.com/document/d/1XcO9np9_wMzI3qOawA4Ubjvu8yvfvlY35adSFARZ8cs/pub and my LinkedIn profile can be found at http://www.linkedin.com/in/amberleelee.
